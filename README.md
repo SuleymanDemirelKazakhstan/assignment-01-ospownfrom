@@ -1,1 +1,2 @@
-# DUMMY TEXT
+Zhumatayev Nurbahyt
+190103092
